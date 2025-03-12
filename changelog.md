@@ -1,5 +1,5 @@
-## 真我GTNeo3特性模块
-#### [123云盘下载](https://www.123865.com/s/RseRVv-ghdAh?)，提取码：W9uj
+## 真我Neo7特性模块
+#### [蓝奏云下载](https://wwrj.lanzouw.com/ihtJJ2qbzjfe)
 > v2.3.3
 重构显示效果
 
