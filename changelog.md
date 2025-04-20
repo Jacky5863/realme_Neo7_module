@@ -1,5 +1,5 @@
 ## 真我Neo7特性模块
-#### [蓝奏云下载]([https://wwrj.lanzouw.com/iDBmx2u1nwji])，密码：dy1q
+#### [蓝奏云下载]([https://wwrj.lanzouw.com/it5uE2u2b3ed])，密码：8681
 > v2.3.6
  - 添加：
 - 游戏助手色彩按钮（可能和护眼那边的冲突）
